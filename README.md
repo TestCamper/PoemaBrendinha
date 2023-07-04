@@ -4,7 +4,7 @@ Talvez um poema? parece ser um (eu acho)
 ```
   É toda catzinha 😽
   A tal da brendinha 
-  Ela é Muito esforcada 
+  Ela é Muito esforçada 
   E por muitos admirada 😼
 ```
 ```
