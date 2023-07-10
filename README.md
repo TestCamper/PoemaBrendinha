@@ -19,6 +19,8 @@ Talvez um poema? parece ser um (eu acho)
  De deixar todos a mil
  Apenas sendo gentil 🤍
 ```
-`Ps: Tenha um bom dia`
+`Ps: Tenha um bom dia!`
 
+![Fico horrível isso kkkkk](brendinha.gif)
+Que esse treco sirva pa tu pelo menos rir, que feio o negócio tá viu kkkk
 
